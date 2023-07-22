@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **saadsyed837@gmail.com**
 
-- ⚡ Fun fact **I'm still learning**
+- ⚡ Fun fact **Everyday is about learning something !!! ;)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
